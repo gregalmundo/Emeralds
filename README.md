@@ -3,7 +3,7 @@ Best Team Ever -no at all... you are being hacked by Sapphires Team!!!!!
 Best color ever
 We rock
 
-Lets do this. 
+Lets do this. Why?? We have the power now!! LONG LIVE SAPPHIRES TEAM!!!!! 
 
 Most useful code ever
 
