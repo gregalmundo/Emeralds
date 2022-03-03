@@ -1,7 +1,7 @@
 # Emeralds
-Best Team Ever
-Best color ever
-We rock
+Best Team Ever, NO, NOT AT ALL!
+Best color ever IS SAPPHIRES!!!
+We rock, I´m not sure!
 
 Lets do this. 
 
