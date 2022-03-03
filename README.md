@@ -1,5 +1,5 @@
 # Emeralds
-Best Team Ever
+Wagmi!! Team Ever
 Best color ever
 We rock
 
