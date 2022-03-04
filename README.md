@@ -1,1 +1,3 @@
 # Emeralds
+I think people need to read more this things... 
+people dont realize the importance of this texts 
