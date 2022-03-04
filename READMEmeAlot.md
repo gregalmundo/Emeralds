@@ -1,7 +1,5 @@
-# Emeralds
-Best Team Ever
-Best color ever
-We rock
+# Emeralds-----we dont like you
+The Pace–Gilder Lehrman MA in American History Program is open to K–12 educators (including district supervisors, librarians, museum professionals, and National Park Service employees) who are affiliated with the Gilder Lehrman Institute. Please read the MA Program FAQs for more information on eligibility. Affordable on a teacher’s salary and manageable while working full time, these courses are designed for K–12 educators. This is a unique opportunity for teachers from the Gilder Lehrman Institute and Pace University.
 
 Lets do this. 
 
